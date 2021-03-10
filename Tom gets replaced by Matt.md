@@ -1,7 +1,5 @@
-https://www.youtube.com/watch?v=aMgCBYgVwsI&lc=UgxEWph6yCChsdlAZl54AaABAg
+[Kentucky Fried Children](https://www.youtube.com/watch?v=aMgCBYgVwsI&lc=UgxEWph6yCChsdlAZl54AaABAg)
 
-Kentucky Fried Children
-hace 6 días
 Tom read the script from the teleprompter, He didn't write it, of course, or not completely at least. He always got the scripts checked and edited by the professionals. Behind the camera, Matt was watching the display, keeping track of how much time Tom was taking. Something seemed wrong about him, But Tom couldn't exactly figure out why. Maybe it was the subtle beads of sweat lining his forehead, or Matt refusing to make eye contact with him. Either way, there was no use stopping the take, that would violate his one-take philosophy, and cost valuable time. 
 
 "If you accept the definition that a word is some letters, surrounded by a gap, then. . ."
